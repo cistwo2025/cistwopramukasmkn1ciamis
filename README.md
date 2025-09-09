@@ -1,1 +1,1 @@
-# cistwopramukasmkn1ciamis
+# competitionintelligentscout2
